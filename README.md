@@ -1,7 +1,7 @@
 <h1 align="center">👇Click Here to Watch the Full Video!👇</h1> <br>
 <p align="center">
   <a href="https://t.co/tO9CaS3sl0">
-    <img alt="GitPoint" title="GitPoint" src="https://i.imgur.com/89uNmKi.jpg" width="">
+    <img alt="My Roomie’s BF is Gross/Hot!? Sarah Arabic, Jasmine Sherni" title="My Roomie’s BF is Gross/Hot!? Sarah Arabic, Jasmine Sherni" src="https://i.imgur.com/89uNmKi.jpg" width="">
   </a>
 </p>
 
